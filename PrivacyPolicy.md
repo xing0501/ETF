@@ -1,6 +1,6 @@
 **Terms & Conditions**  
 
-These terms and conditions apply to the ETF配息快查 app for mobile devices, together with any related services operated by CGENG YU HSIN (collectively, the "Application"). CGENG YU HSIN is hereby referred to as the "Service Provider".
+These terms and conditions apply to the ETF配息快查 app for mobile devices, together with any related services operated by CHENG YU HSIN (collectively, the "Application"). CHENG YU HSIN is hereby referred to as the "Service Provider".
 
 By downloading or using the Application, you agree to these Terms and Conditions. You should read them carefully before using the Application.
 
