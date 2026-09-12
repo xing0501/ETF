@@ -131,7 +131,7 @@ These terms and conditions are effective as of 2026-09-12
 
 **Contact Us**
 
-If you have any questions or suggestions about the Terms and Conditions, please do not hesitate to contact the Service Provider at es.xing.dev@gmail.com..
+If you have any questions or suggestions about the Terms and Conditions, please do not hesitate to contact the Service Provider at  es.xing.dev@gmail.com..
 
 * * *
 
